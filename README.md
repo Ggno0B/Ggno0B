@@ -1,0 +1,7 @@
+- 👋 Hi, I’m a person
+- 👀 I’m interested in random stuff
+- 🌱 I’m currently learning in school.
+- 💞️ I’m looking to collaborate on something
+- 📫 How to reach me idk.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: IDK.
